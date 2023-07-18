@@ -8,5 +8,4 @@ In this book, we will explore the principles of designing a productive home offi
 
 Whether you're a freelancer, entrepreneur, or employee, this book will provide you with the knowledge and techniques you need to design a home office that supports your productivity and success. By applying these principles, you can create a productive workspace that boosts your efficiency and helps you achieve your professional goals.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
