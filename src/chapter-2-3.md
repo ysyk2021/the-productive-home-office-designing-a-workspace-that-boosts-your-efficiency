@@ -1,4 +1,4 @@
-Chapter: Tips for Identifying Personal Obstacles to Productivity and Overcoming Them
+Tips for Identifying Personal Obstacles to Productivity and Overcoming Them
 ====================================================================================
 
 In this chapter, we will explore the common personal obstacles that can hinder productivity in a home office setting. By identifying these obstacles and implementing strategies to overcome them, you can create a more efficient and productive workspace.
