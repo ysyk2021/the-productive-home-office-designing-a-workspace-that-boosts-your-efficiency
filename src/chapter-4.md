@@ -1,5 +1,3 @@
-Chapter 3: Choosing the Right Equipment and Technology
-======================================================
 
 Choosing the right equipment and technology is critical for creating a productive home office. In this chapter, we will explore the role of equipment and technology in a productive home office, techniques for selecting equipment and technology that enhance efficiency, and strategies for organizing technology and minimizing distractions.
 

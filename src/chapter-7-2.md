@@ -1,5 +1,3 @@
-Techniques for Setting Boundaries and Managing Expectations
-====================================================================
 
 In this chapter, we will explore various techniques for setting boundaries and managing expectations in your home office. Creating clear guidelines and effectively communicating your work boundaries are crucial for maintaining work-life balance and maximizing productivity. From establishing a routine to setting communication expectations, these techniques will help you create a harmonious and focused work environment.
 

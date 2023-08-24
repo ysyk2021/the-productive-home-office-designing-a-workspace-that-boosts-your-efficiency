@@ -1,5 +1,3 @@
-Techniques for Cultivating a Mindset towards Efficient Workspace Design
-================================================================================
 
 In this chapter, we will explore various techniques and strategies for developing a mindset that promotes efficient workspace design. By cultivating the right mindset, you can create a workspace that boosts productivity and supports your professional goals.
 

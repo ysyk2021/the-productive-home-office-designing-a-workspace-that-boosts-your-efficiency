@@ -1,5 +1,3 @@
-Strategies for Building Good Habits and Breaking Bad Ones
-======================================================================================================
 
 Developing effective work habits is essential for productivity and success in a home office environment. In this chapter, we'll explore strategies for building good habits and breaking bad ones to help you achieve your professional and personal goals.
 

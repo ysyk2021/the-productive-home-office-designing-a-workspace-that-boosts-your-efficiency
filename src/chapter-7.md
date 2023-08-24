@@ -1,5 +1,3 @@
-Chapter 6: Balancing Work and Life
-==================================
 
 Working from home can blur the lines between work and personal life, making it challenging to maintain a healthy balance. In this chapter, we'll explore the challenges of balancing work and life in a home office environment, techniques for setting boundaries and managing expectations, and strategies for maintaining work-life balance and avoiding burnout.
 

@@ -1,5 +1,3 @@
-The Role of Effective Work Habits in a Productive Home Office
-======================================================================
 
 In this chapter, we will explore the crucial role that effective work habits play in creating a productive home office. While having the right equipment and technology is important, it is equally essential to cultivate habits that promote focus, discipline, and efficiency. Let's delve into the key work habits that can significantly enhance your productivity in a home office environment.
 

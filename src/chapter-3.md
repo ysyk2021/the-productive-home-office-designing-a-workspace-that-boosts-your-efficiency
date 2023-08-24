@@ -1,5 +1,3 @@
-Chapter 2: Assessing Your Work Needs
-====================================
 
 Assessing your work needs is essential when designing a productive home office. In this chapter, we will explore the importance of assessing your work needs when designing a home office, techniques for identifying work goals, tasks, and habits, and strategies for matching workspace features to work needs.
 

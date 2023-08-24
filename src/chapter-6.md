@@ -1,5 +1,3 @@
-Chapter 5: Developing Effective Work Habits
-===========================================
 
 In order to truly maximize productivity in a home office, it's not enough to simply have a well-designed workspace. Developing effective work habits is just as important as having the right tools and environment. This chapter will explore the role of effective work habits in a productive home office, as well as provide techniques for developing time management and task prioritization strategies, and strategies for building good habits and breaking bad ones.
 

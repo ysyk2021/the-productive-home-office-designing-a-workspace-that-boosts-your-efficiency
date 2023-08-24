@@ -1,5 +1,3 @@
-Chapter 1: Understanding Productive Home Offices
-================================================
 
 Understanding productive home offices is essential for designing a workspace that boosts your efficiency. In this chapter, we will explore what it means to have a productive home office, techniques for cultivating a mindset towards efficient workspace design, and tips for identifying personal obstacles to productivity and overcoming them.
 
