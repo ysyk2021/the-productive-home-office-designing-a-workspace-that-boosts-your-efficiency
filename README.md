@@ -1,3 +1,6 @@
+# The Productive Home Office: Designing a Workspace that Boosts Your Efficiency
+
+Book Link: [https://zhengpublishing.com/the-productive-home-office-designing-a-workspace-that-boosts-your-efficiency/](https://zhengpublishing.com/the-productive-home-office-designing-a-workspace-that-boosts-your-efficiency/)
 
 The COVID-19 pandemic has brought about significant changes in the way we work. With remote work becoming the norm, more people are working from home than ever before. While this shift has its benefits, it also poses unique challenges for productivity and efficiency.
 
